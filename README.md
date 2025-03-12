@@ -1,0 +1,1 @@
+Penting bagi member untuk selalu memastikan bahwa nomor telepon yang menghubungi mereka adalah nomor call center resmi Indodax, yaitu (0813) 2828 2621.Mengapa Indodax menghubungi saya melalui panggilan telepon? +62813 2828 2621
